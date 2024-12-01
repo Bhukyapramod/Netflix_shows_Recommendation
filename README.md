@@ -1,1 +1,1 @@
-Please watch out at Read-Me file
+Please check out at (other)READ-ME file
